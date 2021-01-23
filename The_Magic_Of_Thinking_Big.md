@@ -14,6 +14,7 @@
     - [How to Handle Age Excusitis](#how-to-handle-age-excusitis)
   - ["But My Case Is Different; I Attract Bad Lucie."](#but-my-case-is-different-i-attract-bad-lucie)
     - [Conquer Luck Excusitis in Two Ways](#conquer-luck-excusitis-in-two-ways)
+- [Build Confidence and Destroy Fear](#build-confidence-and-destroy-fear)
 
 # Believe You Can Succeed and You Will
 
@@ -165,3 +166,33 @@
    to deliver these good things. Instead, just concentrate on
    developing those qualities in yourself that will make you a
    winner.
+
+# Build Confidence and Destroy Fear
+
+1. Action cures fear. Isolate your fear and then take
+   constructive action. Inaction-doing nothing about a
+   situation strengthens fear and destroys confidence.
+
+2. Make a supreme effort to put only positive thoughts in
+   your memory bank. Don't let negative, self-deprecatory
+   thoughts grow into mental monsters. Simply refuse to
+   recall unpleasant events or situations.
+
+3. Put people in proper perspective. Remember, people are
+   more alike, much more alike, than they are different. Get a
+   balanced view of the other fellow. He is just another human
+   being. And develop an understanding attitude. Many people
+   will bark, but it's a rare one who bites.
+
+4. Practice doing what your conscience tells you is right. This
+   prevents a poisonous guilt complex from developing. Doing
+   what's right is a very practical rule for success.
+
+5. Make everything about you say, "I'm confident, really confident.
+   "Practice these little technIques in your day-to-day
+   activities:
+   - Be a front seater.
+   - Make eye contact.
+   - Walk 25 percent faster.
+   - Speak up.
+   - Smile big.
