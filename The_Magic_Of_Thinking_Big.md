@@ -15,6 +15,7 @@
   - ["But My Case Is Different; I Attract Bad Lucie."](#but-my-case-is-different-i-attract-bad-lucie)
     - [Conquer Luck Excusitis in Two Ways](#conquer-luck-excusitis-in-two-ways)
 - [Build Confidence and Destroy Fear](#build-confidence-and-destroy-fear)
+- [How to Think Big](#how-to-think-big)
 
 # Believe You Can Succeed and You Will
 
@@ -196,3 +197,24 @@
    - Walk 25 percent faster.
    - Speak up.
    - Smile big.
+
+# How to Think Big
+
+1. Don't sell yourself short. Conquer the crime of self-deprecation.
+   Concentrate on your assets. You're better than you think you are.
+
+2. Use the big thinker's vocabulary. Use big. bright, cheerful
+   words. Use words that promise victory; hope, happiness, .
+   pleasure; avoid words that create unpleasant images of failure,
+   defeat, grief.
+
+3. Stretch your vision: See what can be, not just what is.
+   Practice adding value to things, to people, and to yourself.
+
+4. Get the big view of your job. Think, really think your present
+   job is important. That next promotion depends mostly on how you think
+   toward your present job.
+
+5. Think above trivial things. Focus your attention on big
+   objectives. Before getting involved in a petty matter, ask
+   yourself, "Is it really important?"
