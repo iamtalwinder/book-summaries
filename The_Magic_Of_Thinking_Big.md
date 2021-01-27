@@ -16,6 +16,7 @@
     - [Conquer Luck Excusitis in Two Ways](#conquer-luck-excusitis-in-two-ways)
 - [Build Confidence and Destroy Fear](#build-confidence-and-destroy-fear)
 - [How to Think Big](#how-to-think-big)
+- [How to Think and Dream Creatively](#how-to-think-and-dream-creatively)
 
 # Believe You Can Succeed and You Will
 
@@ -218,3 +219,36 @@
 5. Think above trivial things. Focus your attention on big
    objectives. Before getting involved in a petty matter, ask
    yourself, "Is it really important?"
+
+# How to Think and Dream Creatively
+
+1. Believe it tan be done. When you believe something can
+   be done, your mind will find the ways to do it. Believing a
+   solution paves the way to solution.
+   Eliminate "impossible," '\won't work, "can't do," no
+   use trying" from your thinking and speaking vocabulalies.
+
+2. Don't let tradition paralyze your mind. Be receptive to new
+   ideas. Be experimental. Try new approaches. Be progressive
+   . in everything you do.
+
+3. Ask yourself daily, "How can I do better?" There is no limit
+   to self improvement. When you ask yourself, "How can I do
+   better?" sound answers will appear. Try it and see.
+
+4. Ask yourself, "How can I do more?" Capacity is a state
+   of mind. Asking yourself this question puts your mind to
+   work to find intelligent shortcuts. The success combination
+   in business is: Do what you do better (improve the quality
+   of your output), and: Do more of what you do (increase the
+   quantity of your output).
+
+5. Practice asking and listening. Ask and listen, and you'll obtain
+   raw material for reaching sound decisions. Remember: Big
+   people monopolize the listening; small people monopolize
+   the talking.
+
+6. Stretch your mind. Get stimulated. Associate with people
+   who can help you think of new ideas, new ways of doing
+   things. Mix with people of different occupational and social
+   interests.
