@@ -21,6 +21,7 @@
 - [Manage Your EnvironmeHt: Go First Class](#manage-your-environmeht-go-first-class)
 - [Make Your Attitudes Your Allies](#make-your-attitudes-your-allies)
 - [Think Right Toward People](#think-right-toward-people)
+- [Get the Action Habit](#get-the-action-habit)
 
 # Believe You Can Succeed and You Will
 
@@ -356,3 +357,32 @@
 7. Don't blame others when you receive a setback. Remember,
    how you think when you lose determines how long it will
    be until you win.
+
+# Get the Action Habit
+
+1. Be an activationist. Be someone who does things. Be a doer,
+   not a don't-er.
+
+2. Don't wait until conditions are perfect. They never will be.
+   Expect future obstacles and difficulties and solve them as
+   they arise.
+
+3. Remember, ideas alone won't bring success. Ideas have
+   value only when you act upon them.
+
+4. Use action to cure fear and gain confidence. Do what you
+   fear, and fear disappears. Just try it and see.
+
+5. Start your mental engine mechanically. Don't wait· for the
+   spirit to move you. Take action, dig in, and you move the
+   spirit.
+
+6. Think in terms of now. Tomorrow, next week, later; and
+   similar words often are synonymous with the failure word,
+   never. Be an "I'm starting right now" kind of person.
+
+7. Get down to business-pronto. Don't waste time getting
+   ready to act. Start acting instead.
+
+8. Seize the initiative. Be a crusader. Pick up the ball and run.
+   Be a volunteer. Show that you have the ability and ambition to do.
