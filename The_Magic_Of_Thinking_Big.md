@@ -20,6 +20,7 @@
 - [You Are What You Think You Are](#you-are-what-you-think-you-are)
 - [Manage Your EnvironmeHt: Go First Class](#manage-your-environmeht-go-first-class)
 - [Make Your Attitudes Your Allies](#make-your-attitudes-your-allies)
+- [Think Right Toward People](#think-right-toward-people)
 
 # Believe You Can Succeed and You Will
 
@@ -324,3 +325,34 @@
 3. Grow the "Service first" attitude, and watch money take
    care of itself. Make it a rule in everything you do: give
    people more than they expect to get.
+
+# Think Right Toward People
+
+1. Make yourself lighter to lift. Be likable. Practice being the
+   kind of person people like. This wins their support and puts
+   fuel in your success-building program.
+
+2. Take the initiative in building friendships. Introduce yourself to others at every opportunity.
+   Make sure you get the other person's name straight, and make certain he gets
+   your name straight too. Drop a personal note to your new
+   friends you want to get to know better.
+
+3. Accept human differences and limitations. Don't expect
+   anyone to be perfect. Remember, the other person has a
+   right to be different. And don't be a reformer.
+
+4. Tune in. Channel P, the Good Thoughts Station. Find qualities to like and admire in a person,
+   not things to dislike. And don't let others prejudice your thinking about a third
+   person. Think positive thoughts towards people-and get
+   positive results.
+
+5. Practice conversation generosity. Be like successful people.
+   Encourage others to talk. Let the other person talk to you
+   about his views, his opinions, his accomplishments.
+
+6. Practice courtesy all the time. It makes other people feel
+   better. It makes yot! feel better too.
+
+7. Don't blame others when you receive a setback. Remember,
+   how you think when you lose determines how long it will
+   be until you win.
