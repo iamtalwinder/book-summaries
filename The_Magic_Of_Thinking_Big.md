@@ -22,6 +22,7 @@
 - [Make Your Attitudes Your Allies](#make-your-attitudes-your-allies)
 - [Think Right Toward People](#think-right-toward-people)
 - [Get the Action Habit](#get-the-action-habit)
+- [How to Turn Defeat into Victory](#how-to-turn-defeat-into-victory)
 
 # Believe You Can Succeed and You Will
 
@@ -386,3 +387,23 @@
 
 8. Seize the initiative. Be a crusader. Pick up the ball and run.
    Be a volunteer. Show that you have the ability and ambition to do.
+
+# How to Turn Defeat into Victory
+
+1. Study. setbacks to pave your way to success. When you lose,
+   learn, and then go on to win next time.
+
+2. Have the courage to be your own constructive critic. Seek
+   out your faults and weaknesses and then correct them. This
+   makes you a professional.
+
+3. Stop blaming luck. Research each setback. Find out what
+   went wrong. Remember, blaming luck never got anyone
+   where he wanted to go.
+
+4. Blend persistence with experimentation. Stay with your
+   goal but don't beat your head against a stone wall. Try new
+   approaches. Experiment.
+
+5. Remember; there is a good side in every situation. Find it.
+   See the good side and whip discouragement.
