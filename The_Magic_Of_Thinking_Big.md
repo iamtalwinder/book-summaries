@@ -19,6 +19,7 @@
 - [How to Think and Dream Creatively](#how-to-think-and-dream-creatively)
 - [You Are What You Think You Are](#you-are-what-you-think-you-are)
 - [Manage Your EnvironmeHt: Go First Class](#manage-your-environmeht-go-first-class)
+- [Make Your Attitudes Your Allies](#make-your-attitudes-your-allies)
 
 # Believe You Can Succeed and You Will
 
@@ -293,5 +294,33 @@
 
 6. Throw thought poison out of your environment. Avoid
    gossip. Talk about people, but stay on the positive side.
+
 7. Go fIrst class in everything you do. You can't afford to go
-   . any other way
+   any other way.
+
+# Make Your Attitudes Your Allies
+
+1. Grow the "'I'm activated" attitude. Results come in proportion to the enthusiasm invested.
+   Three things to do to activate yourself are:
+
+   Dig into it deeper. When you find yourself uninterested in something, dig in and learn more
+   about it. This sets off enthusiasm.
+
+   Life up everything about you: your smile, your
+   handshake, your talk, even your walk. Act
+   alive.
+
+   Broadcast good news. No one ever accomplished
+   anything positive telling bad news.
+
+2. Grow the "You are important" attitude. People do more for
+   you when you make them feel important. Remember to do
+   these things:
+
+   Show appreciation at every opportunity. Make
+   people feel important.
+   Call people by name.
+
+3. Grow the "Service first" attitude, and watch money take
+   care of itself. Make it a rule in everything you do: give
+   people more than they expect to get.
