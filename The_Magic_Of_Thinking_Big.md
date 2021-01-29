@@ -18,6 +18,7 @@
 - [How to Think Big](#how-to-think-big)
 - [How to Think and Dream Creatively](#how-to-think-and-dream-creatively)
 - [You Are What You Think You Are](#you-are-what-you-think-you-are)
+- [Manage Your EnvironmeHt: Go First Class](#manage-your-environmeht-go-first-class)
 
 # Believe You Can Succeed and You Will
 
@@ -270,3 +271,27 @@
 
 4. In all of life's situations, ask yourself, "Is this the way an
    important person thinks?" Then obey the answer.
+
+# Manage Your EnvironmeHt: Go First Class
+
+1. Be environment-conscious. Just as body diet ,makes the
+   body, mind diet makes the mind.
+
+2. Make your environment work for you, not against you.
+   Don't let suppressive forces-the negative, you-can't-do-it
+   people-make you think defeat.
+
+3. Don't let small-thinking people hold you back. Jealous
+   people want to see you stumble. Don't give them that satisfaction.
+
+4. Get your advice from successful people. Your future is
+   important. Never risk it with freelance advisors who are
+   living failures.
+
+5. Get plenty of psychological sunshine. Circulate in new
+   groups. Discover new and stimulating things to do.
+
+6. Throw thought poison out of your environment. Avoid
+   gossip. Talk about people, but stay on the positive side.
+7. Go fIrst class in everything you do. You can't afford to go
+   . any other way
