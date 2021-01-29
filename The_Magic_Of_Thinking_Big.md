@@ -17,6 +17,7 @@
 - [Build Confidence and Destroy Fear](#build-confidence-and-destroy-fear)
 - [How to Think Big](#how-to-think-big)
 - [How to Think and Dream Creatively](#how-to-think-and-dream-creatively)
+- [You Are What You Think You Are](#you-are-what-you-think-you-are)
 
 # Believe You Can Succeed and You Will
 
@@ -252,3 +253,20 @@
    who can help you think of new ideas, new ways of doing
    things. Mix with people of different occupational and social
    interests.
+
+# You Are What You Think You Are
+
+1. Look important; it helps you think important. Your appearance talks to you. Be sure
+   it lifts your spirits and builds your confidence. Your appearance talks to others.
+   Make certain it says. "Here is an important person: intelligent. prosperous. and dependable."
+
+2. Think your work is important. Think this way; and you will
+   receive mental signals on how to do your job better. Think
+   your work is important, and your subordinates will think
+   their work is important too.
+
+3. Give yourself a pep talk several times daily. Build a "sellyourself-to-yourself" commercial.
+   Remind yourself at every opportunity that you're a first-class person.
+
+4. In all of life's situations, ask yourself, "Is this the way an
+   important person thinks?" Then obey the answer.
