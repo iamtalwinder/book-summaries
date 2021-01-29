@@ -23,6 +23,7 @@
 - [Think Right Toward People](#think-right-toward-people)
 - [Get the Action Habit](#get-the-action-habit)
 - [How to Turn Defeat into Victory](#how-to-turn-defeat-into-victory)
+- [Use Goals to Help You Grow](#use-goals-to-help-you-grow)
 
 # Believe You Can Succeed and You Will
 
@@ -407,3 +408,27 @@
 
 5. Remember; there is a good side in every situation. Find it.
    See the good side and whip discouragement.
+
+# Use Goals to Help You Grow
+
+1. Get a clear fIx on where you want to go. Create an image of
+   yourself ten years from now.
+
+2. Write out your ten-year plan. Your life is too important
+   to be left to chance. Put down on paper what you want
+   to accomplish in your work, your home, and your social
+   departments.
+
+3. Surrender yourself to your desires. Set goals to get more
+   energy. Set goals to get things done. Set goals and discover
+   the real enjoyment of living.
+
+4. Let your major goal be your automatic pilot. When you let
+   your goal absorb you, you'll find yourself making the right
+   decisions to reach your goal.
+
+5. Achieve your goal one step at a time. Regard each task you
+   perform, regardless of how small it may seem, as a step toward
+   your goal.
+
+6. Build thirty-day goals. Day-by-day effort pays off
