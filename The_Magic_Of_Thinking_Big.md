@@ -24,6 +24,8 @@
 - [Get the Action Habit](#get-the-action-habit)
 - [How to Turn Defeat into Victory](#how-to-turn-defeat-into-victory)
 - [Use Goals to Help You Grow](#use-goals-to-help-you-grow)
+- [How to Think like a Leader](#how-to-think-like-a-leader)
+  - [Four leadership rules or principles are:](#four-leadership-rules-or-principles-are)
 
 # Believe You Can Succeed and You Will
 
@@ -432,3 +434,33 @@
    your goal.
 
 6. Build thirty-day goals. Day-by-day effort pays off
+
+# How to Think like a Leader
+
+## Four leadership rules or principles are:
+
+1. Trade minds with the people you want to influence. It's
+   easy to get others to do what you want them to do if you'll
+   see things through their eyes. Ask yourself this question
+   before you act: "What would I think of this if I exchanged
+   places with the other person)"
+
+2. Apply the "Be-Human" rule in your dealings with others.
+   Ask, "What is the human way to handle this?" In everything
+   you do, show that you put other people first. Just give other
+   people the kind of treatment you like to receive. You'll be
+   rewarded.
+
+3. Think progress, believe in progress, push for progress. Think
+   improvement in everything you do. Think high standards in
+   everything you do. Over a period of time subordinates tend to
+   become carbon copies of their chief. Be sure the master copy is
+   worth duplicating. Make this a personal resolution: 'At home,
+   at work, in community life, if it's progress I'm for it."
+
+4. Take time out to confer with yourself and tap your supreme
+   thinking power. Managed solitude pays off. Use it to release
+   your creative power. Use it to find solutions to personal and
+   business problems. So spend some time alone every day just
+   for thinking. Use the thinking technique all great leaders
+   use: confer with yourself.
